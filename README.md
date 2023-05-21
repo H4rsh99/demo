@@ -4,5 +4,3 @@ x
 zxcfghf
 dfg
 sdfsdf
-czxfgj
-zvsdg
